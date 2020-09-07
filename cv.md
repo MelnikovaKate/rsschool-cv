@@ -1,6 +1,7 @@
 ### Resume
 #### Kuzmich Ekaterina Denisovna
 ###### Contact Info: 
+- Mobile phone: +375293194295
 - Mail: kate03mich@gmail.com
 ###### Goal and wishes: 
 I want to try myself as a JavaScript developer, get new experience and new theoretical knowledge, learn how to apply them in practice and continue to develop in this direction. I am ready to learn a lot and work effectively.                                                                                                                              
