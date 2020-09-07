@@ -1,4 +1,4 @@
-### Resume
+### JavaScript Developer Resume
 #### Kuzmich Ekaterina Denisovna
 ###### Contact Info: 
 - Mobile phone: +375293194295
