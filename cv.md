@@ -1,5 +1,5 @@
 ### Resume
-#### Kuzmich Ekaterina 
+#### Kuzmich Ekaterina Denisovna
 ###### Contact Info: 
 - Mail: kate03mich@gmail.com
 ###### Goal and wishes: 
